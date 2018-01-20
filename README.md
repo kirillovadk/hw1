@@ -21,6 +21,8 @@
 
 
 А ещё я люблю сидеть в Интернете
+
 [ВК](https://vk.com/kirillova_dk "добавляйтесь в друзья")
+
 [IG](https://www.instagram.com/kirillova_dk/ "ставьте лайки")
 
